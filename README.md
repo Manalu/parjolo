@@ -1,2 +1,2 @@
 # parjolo
-parjolo-jolo tubu
+on ma project na parjolo-jolo tubu hahahahaha :)
